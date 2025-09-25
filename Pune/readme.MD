@@ -1,0 +1,1 @@
+- sample local event - https://www.linkedin.com/events/7377037244278390784/
