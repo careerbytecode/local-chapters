@@ -7,8 +7,8 @@
 ## 🌟 About CareerByteCode  
 
 CareerByteCode is a **fast-growing global platform** empowering over:  
-- 👥 **241,000+ IT professionals**  
-- 🌎 Across **99+ countries worldwide**  
+- 👥 **242,000+ IT professionals**  
+- 🌎 Across **101+ countries worldwide**  
 - 🛠 Backed by **1700+ real-time projects** for hands-on learning  
 
 📢 We are not just another training platform — **we are a career empowerment movement**.  
@@ -73,6 +73,32 @@ CareerByteCode Local Chapters are **physical meetups + hands-on sessions** held 
 
 ---
 
+## 💼 Become a Local Chapter Lead in Your City  
+
+We are actively looking for **passionate leaders** from **every city worldwide** 🌍.  
+
+⚡️ Only the **first 3 people** who step up in each city will get the chance to become **Local Chapter Leads** — the rest will join as members.  
+
+As a **Local Chapter Lead**, you can:  
+- Organize meetups & hands-on workshops  
+- Build strong local + global networks  
+- Inspire and mentor professionals in your community  
+
+---
+
+## 🌟 Benefits for Local Chapter Leads  
+
+As a **CareerByteCode Local Chapter Lead**, you get:  
+
+🎖 **Verified Digital Speaker Badge** – Flaunt it on LinkedIn and your resume  
+🌍 **Global Reach** – Be seen across 101+ countries by 242K+ learners  
+🆓 **Full Free Platform Access** – Real-time projects, events & training resources  
+📈 **Follower Growth & Branding** – Boost your visibility with our global network  
+💸 **Passive Earning Opportunities** – Paid talks, collabs, affiliate invites  
+🤝 **Leaders Circle Entry** – Join our private network of high-impact mentors & trainers  
+🌐 **Global Brand Support** – With our permission, use our brand to network with top product companies, CEOs, and founders  
+
+---
 
 ## 🔗 Join the Movement  
 
@@ -80,12 +106,16 @@ CareerByteCode Local Chapters are **physical meetups + hands-on sessions** held 
 
 ✅ Invite your friends, colleagues, and peers – **let’s learn, share & grow together** 🌟  
 
+💡 **Reply here if you’re interested** — Connect on LinkedIn 👉 [CareerByteCode](https://www.linkedin.com/in/careerbytecode/)  
+
+We’ll send you the **onboarding process**.  
+
 ---
 
 ## 🌍 The Road Ahead  
 
 🔮 This is just the beginning!  
-CareerByteCode will expand **local chapters worldwide** – Bangalore, Delhi, Chennai, Hyderabad, USA, Europe, Middle East, and beyond.  
+CareerByteCode will expand **local chapters in every city worldwide** – Bangalore, Delhi, Chennai, Hyderabad, New York, Toronto, London, Dubai, Singapore, and beyond.  
 
 Our vision is clear:  
 - **Empower 10 Million+ Students & Professionals** 💪  
